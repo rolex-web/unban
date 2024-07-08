@@ -1,0 +1,1 @@
+gtag unban tool all u need to do is join gtag on ur steam /pc vr and open the file u are gonna get kicked but u just need to join back the game and u should be unbanned if it didnt work dm one of the owners so we can try and fix it
